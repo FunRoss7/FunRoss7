@@ -1,1 +1,1 @@
-I'm a Sr. SoftyEng. I used to code for fun more and explore ideas, but now I'm busy with various necessary occupations. Thank for writing code, I'm too lazy :P
+I'm Ross! I like to play with ideas and share them. I'm trying to share some of the things I learned in my Econ Master's Degree via little interactive games so hopefully you can learn the concepts easier and faster! Happy trails.
